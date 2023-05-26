@@ -1,0 +1,1 @@
+# Passivo_banco
